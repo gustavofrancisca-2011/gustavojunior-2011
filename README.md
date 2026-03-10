@@ -10,11 +10,10 @@
 
 -estudo no Colégio Manoel Ribas
 
-![](https://media1.tenor.com/m/E-dg68_nbcgAAAAd/good-morning.gif)
+![](https://media1.tenor.com/m/xNGPNrq8o6YAAAAd/demon-slayer-zenitsu.gif)
 
 -Estou no 1ºano do ensino medio 
 
 ![](https://media.tenor.com/PJC_qDDQnssAAAAi/inosuke-protesta.gif)
 
-![](https://media1.tenor.com/m/E-dg68_nbcgAAAAd/good-morning.gif)
 
